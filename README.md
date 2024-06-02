@@ -1,4 +1,4 @@
-Ini hanya untuk game
+Ini hanya untuk game.
 task dan farming tidak termasuk
 
 cara:
